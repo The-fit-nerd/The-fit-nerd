@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @The-fit-nerd
-- 👀 I’m interested in Fitness, Gaming, VR & AR, Reading, Music, Art, Anime and Front End Dev.
+- 👀 I’m interested in Fitness, Gaming, VR & AR, Reading, Music, Art, Anime, woodworking and Front End Dev.
 - 🌱 I’m currently learning Git
 - 💞️ I’m looking to collaborate on anything that will give me an experience.
 - 📫 How to reach me ...Eval3n27@gmail.com
